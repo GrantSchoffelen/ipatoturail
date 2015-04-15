@@ -1,3 +1,0 @@
-# ipatoturail
-
-read me
